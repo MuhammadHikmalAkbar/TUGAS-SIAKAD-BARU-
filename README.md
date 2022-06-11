@@ -1,2 +1,2 @@
 # TUGAS SIAKAD BARU 
- Setelah Pemberian kelas bari
+ Setelah Pemberian kelas baru
